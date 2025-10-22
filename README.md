@@ -1,4 +1,7 @@
-<p justify="" style="text-align: justify;" text-align:=""><span color:="" style="">Each company in today&#39;s world needs a professional website to reach consumers and grow successfully in the digital space. DXB APPS is a top web design Dubai company helping businesses design amazing websites that operate perfectly and deliver actual results. As a trustworthy <strong><a href="https://dxbapps.com/web-development.php">Web Development Company</a></strong>, we design websites that are simple to use, visually captivating to the eye, and help businesses succeed sooner than the competition. Our expert team uses simple, efficient methods to convert your business ideas into user-friendly websites that others enjoy visiting and using daily.</span></p>
+<p justify="" style="text-align: justify;" text-align:=""><span color:="" style="">Each company in today&#39;s world needs a professional website to reach consumers and grow successfully in the digital space. DXB APPS is a top web design Dubai company helping businesses design amazing websites that operate perfectly and deliver actual results. 
+  
+  
+As a trustworthy <strong><a href="https://dxbapps.com/web-development.php">Web Development Company</a></strong>, we design websites that are simple to use, visually captivating to the eye, and help businesses succeed sooner than the competition. Our expert team uses simple, efficient methods to convert your business ideas into user-friendly websites that others enjoy visiting and using daily.</span></p>
 
 <h2 justify="" style="text-align: justify;" text-align:=""><span color:="" style=""><strong>Website Development and Design Services BY DXB APPS</strong></span></h2>
 
